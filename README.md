@@ -122,8 +122,13 @@
 ## <a name="5"></a>Limerick
 
 - [ACOMODAÇÃO LIMERICK](https://chat.whatsapp.com/DnxPijnsslJ7mOz48WsfOQ)
-- [LIMERICK RENT & JOBS®️](https://chat.whatsapp.com/JeCVjRYFFuT3EIiFgZutBY)
+- [LIMERICK RENT & JOBS️](https://chat.whatsapp.com/JeCVjRYFFuT3EIiFgZutBY)
 - [Diversao em Limerick](https://chat.whatsapp.com/DvuQDWyWBok2jxBxYHjYsi)
+- [Desapego Limerick](https://chat.whatsapp.com/CMgv763xMnF8OLjYSjmRWv)
+- [Desapego 2 Limerick](https://chat.whatsapp.com/I0NsEWGfp6VKgo1TzZr1ha)
+- [Emprego em Limerick!!!](https://chat.whatsapp.com/FUfMOs8v4OkLeLOVofLkec)
+- [Acomodação BR Limerick](https://chat.whatsapp.com/Bw3uEjEhOZCFEBlrE6N8RO)
+- [Limerick 2023](https://chat.whatsapp.com/GS5cFxkBZg9HXm2y9Ei5Oc)
 
 
 ## <a name="6"></a>Outros condados/Cidades
